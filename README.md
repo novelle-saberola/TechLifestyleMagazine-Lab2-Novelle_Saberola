@@ -1,0 +1,1 @@
+# TechLifestyleMagazine-Lab2-Novelle_Saberola
